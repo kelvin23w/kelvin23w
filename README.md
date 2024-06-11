@@ -1,4 +1,4 @@
-## Hi there 👋
+Olá, meu nome é kelvin tenho 17 anos gostou de anime desvolvimento pessoa e estoicismo e de apreder coisas novas é ganhar bastante dinheiro ks ks brincadeira mais é bom ganhar.
 
 <!--
 **kelvin23w/kelvin23w** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
